@@ -12,6 +12,7 @@
 
 [Liên hệ với Viettel R&D nếu bạn quan tâm đến dòng sản phẩm này](https://3ssoft.vn/tong-cong-ty-cong-nghiep-cong-nghe-cao-viettel-vpt)
 
-![alt text](https://www.google.com/search?q=h%E1%BB%87+th%E1%BB%91ng+quang+%C4%91i%E1%BB%87n+t%E1%BB%AD+viettel&sxsrf=ALeKk03PZFzGJMhs1vbB56xPLvwumKaBEQ:1595609275956&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjkut_gq-bqAhWJdXAKHRyICp8Q_AUoA3oECAwQBQ&biw=1745&bih=871#imgrc=9jPWPhl93fPlgM)
+![alt text](https://www.google.com/search?q=h%C3%ACnh+%E1%BA%A3nh+v%E1%BB%87+tinh+vi%E1%BB%87t+nam&tbm=isch&ved=2ahUKEwjIuuaIrObqAhUBBaYKHewgA9QQ2-cCegQIABAA&oq=h%C3%ACnh+%E1%BA%A3nh+v%E1%BB%87+tinh+&gs_lcp=CgNpbWcQARgDMgIIADICCAAyAggAMgIIADIECAAQHjIGCAAQBRAeMgYIABAFEB4yBggAEAgQHjIGCAAQCBAeMgYIABAIEB5QvEBYvEBg1WRoAHAAeACAAVOIAVOSAQExmAEAoAEBqgELZ3dzLXdpei1pbWfAAQE&sclient=img&ei=DxEbX4j3OYGKmAXswYygDQ&bih=871&biw=1745#imgrc=rW-N1gta7THH0M
+)
 > Hình ảnh minh họa
 
