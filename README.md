@@ -12,6 +12,7 @@
 
 [Liên hệ với Viettel R&D nếu bạn quan tâm đến dòng sản phẩm này](https://3ssoft.vn/tong-cong-ty-cong-nghiep-cong-nghe-cao-viettel-vpt)
 
-![alt](http://viettelrd.com.vn/sites/default/files/1.jpg)
+![aima](ima/DIB.png)
+(http://viettelrd.com.vn/sites/default/files/1.jpg)
 > Hình ảnh minh họa
 
